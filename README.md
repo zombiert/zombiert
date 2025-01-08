@@ -1,4 +1,4 @@
-![r u gay or smth??](https://pin.it/3egGxBPVE)
+![r u gay or smth??](https://pin.it/2M35vCrSX)
 
 <!--
 **zombiert/zombiert** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
