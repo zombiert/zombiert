@@ -12,7 +12,7 @@
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1177363779001008311/1326401705583181824/soxjtg.gif?ex=677f4b59&is=677df9d9&hm=1ad8d6e654052e3b2cd88c8f322b9ab83ad0cbb9ab693bf558f0a840705358a7&" alt="quee??" width="20" height="20">   c+h is kk! also int if u want ;3 I love int w everybody!! 
 
-— — — — — — — — — — — — — — — — — — — — —
+— — — — — — — — — — — — — — — — —
 
   <p align="center">
   btw, check my d̲n̲i̲ in 𝗦𝘁𝗿𝗮𝘄.𝗽𝗮𝗴𝗲 or 𝗖𝗮𝗿𝗿𝗱.𝗰𝗼
