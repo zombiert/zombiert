@@ -10,7 +10,7 @@
 
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1177363779001008311/1326401705583181824/soxjtg.gif?ex=677f4b59&is=677df9d9&hm=1ad8d6e654052e3b2cd88c8f322b9ab83ad0cbb9ab693bf558f0a840705358a7&" alt="quee??" width="20" height="20">   c+h is fine for me! Although I have a bit of a problem with some ships... but thats fine too! 
+  <img src="https://media.discordapp.net/attachments/1177363779001008311/1326401705583181824/soxjtg.gif?ex=677f4b59&is=677df9d9&hm=1ad8d6e654052e3b2cd88c8f322b9ab83ad0cbb9ab693bf558f0a840705358a7&" alt="quee??" width="20" height="20">   c+h is fine for me n i love it, plz do it;3
   
 <p align="center">
   Semi-afk most of the time soo plsssz w2i!! unless if u r close friend
